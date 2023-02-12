@@ -1,6 +1,5 @@
 ### Hi there I'm Chanda Yadav👋
 
-💫 About Me:
 🌱 I’m currently learning DSA & WEB-DEVELOPMENT.<br>📫 How to reach me yadavchanda332@gmail.com<br>😄 Pronouns: She/Her
 
 
